@@ -1,2 +1,4 @@
 # kho-cu-chi-shopee
 Lưu ngay địa chỉ kho Củ Chi Shopee mới nhất
+<p style="text-align: justify;">Nếu bạn là người thường xuyên mua hàng trên Shopee thì hãy nên nắm <a href="https://blogvn.org/dia-chi-kho-cu-chi-shopee.html"><strong>địa chỉ kho Củ Chi Shopee</strong></a> nhằm theo dõi đơn hàng của mình nhanh hơn. Thông thường những đơn hàng trước khi đến tay người nhận cần qua nhiều kho vận chuyển khác nhau. Tùy thuộc vào vị trí địa lý và khu vực mà bạn đang sống thì hàng hóa sẽ đến nhanh hay chậm.</p>
+<p style="text-align: justify;">Việc nắm rõ địa chỉ của kho sẽ giúp người dùng dễ dàng biết được bao lâu nữa hàng sẽ đến tay mình. Liệu có thể trực tiếp đến kho lấy hàng được hay không? Cùng <a href="http://blogvn.org" target="_blank" rel="noopener">blogvn.org</a> tìm hiểu chi tiết trong bài viết sau.</p>
